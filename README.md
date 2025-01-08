@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lollyboy1234,, an Account Officer and a future Educator . 
+- 👋 Hi, I’m @lollyboy1234,, an Account Officer and a Fire Officer . 
 - 👀 I’m interested in ... exploring and travelling in diferrent places and and maybe beyond the universe.
 - ▶️ I like playing chess, surfing online games and cockfightig , reading calculating and computing 
 - 🌱 I’m currently learning ... on  life hacks and secrets to longetivity
